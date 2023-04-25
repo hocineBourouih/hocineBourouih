@@ -6,7 +6,7 @@
 
 💞️ Je cherche à collaborer sur des projets open-source, des hackathons et des compétitions de programmation pour développer mes compétences et aider la communauté.
 
-📫 Pour me contacter, n'hésitez pas à m'envoyer un e-mail à hocine.bourouih@outlook.fr ou à me suivre sur LinkedIn : www.linkedin.com/in/hocinebourouih
+📫 Pour me contacter, n'hésitez pas à m'envoyer un e-mail à hocine.bourouih@outlook.fr ou à me suivre sur LinkedIn : www.linkedin.com/in/hocine-bourouih
 
 
 <!---
